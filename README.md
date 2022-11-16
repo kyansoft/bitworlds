@@ -4,4 +4,4 @@ Dont resell
 
 The old version of bitworlds free to use please credit me.
 
-need help setup? kyansoft#1695
+need help setup? dont ask me bc im to busy noob
